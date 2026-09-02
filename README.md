@@ -5,7 +5,7 @@
 
 ### Computer Engineering & Networks
 
-[LinkedIn]([YOUR_LINKEDIN_URL](https://www.linkedin.com/in/Rah-f)) • [Email](mailto:rhaf0072@gmail.com)
+[LinkedIn]((https://www.linkedin.com/in/Rah-f)) • [Email](mailto:rhaf0072@gmail.com)
 
 </div>
 
