@@ -1,7 +1,7 @@
 
 <div align="center">
 
-# **Rahaf Abdullah**
+# **Rahaf A. Alotaibi**
 
 ### Computer Engineering & Networks
 
