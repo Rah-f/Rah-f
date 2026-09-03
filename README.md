@@ -11,6 +11,6 @@
 
 ---
 <div align="center">
-**Always learning. Always building.**
+# **Learning never exhausts the mind**
 
 </div>
