@@ -3,7 +3,7 @@
 
 # **Rahaf Abdullah**
 
-### Computer Engineering & Networks
+### Computer Engineering & Network Student
 
 [LinkedIn](https://www.linkedin.com/in/Rah-f) • [Email](mailto:rhaf0072@gmail.com)
 
