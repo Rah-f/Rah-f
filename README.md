@@ -11,7 +11,7 @@
 
 ---
 <div align="center">
-Learning never exhausts the mind
+Discovering, Learning, Trying, and Growing.
 
 
 </div>
