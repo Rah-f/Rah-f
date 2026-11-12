@@ -5,7 +5,6 @@
 
 ### Computer Engineering & Network Student
 
-[LinkedIn](https://www.linkedin.com/in/Rah-f) • [Email](mailto:rahaf11otb@gmail.com) • [𝕏](https://x.com/rahfengi)
 
 </div>
 
